@@ -1,1 +1,1 @@
-# Walmart-Crusades-Changelog
+Is this fucking python💀

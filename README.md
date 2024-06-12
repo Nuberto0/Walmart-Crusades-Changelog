@@ -1,1 +1,1 @@
-Is this fucking python💀
+Step 1: Install fumckin Untitty
